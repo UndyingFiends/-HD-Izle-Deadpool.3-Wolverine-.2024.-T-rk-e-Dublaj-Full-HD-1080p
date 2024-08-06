@@ -6,7 +6,7 @@ Deadpool.3/Wolverine 2024 filmini Türkçe Dublaj Full HD ve Türkçe Altyazıl�
 
 **[➤➤🔴✅📱 Izle Simdi 🔴✅➤➤ Deadpool.3/Wolverine (2024) Türkçe Dublaj Film](https://inflix.site/tr/movie/533535/deadpool-wolverine)**
 
-![Deadpool.3/Wolverine 2024](LINK GAMBAR BCAKDROUP)
+![Deadpool.3/Wolverine 2024](https://image.tmdb.org/t/p/original/dvBCdCohwWbsP5qAaglOXagDMtk.jpg)
 
 ## Genel Bakış:
 Bütün sevdiklerini ve dünyasını tehdit eden büyük bir tehlikeye karşı harekete geçmesi gereken Deadpool, Wolverine'i kendisine yardım etmesi için ikna etmeye çalışır.
